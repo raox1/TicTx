@@ -104,7 +104,11 @@ Here's the app video:
 
 
 
-Uploading Screen Recording 2025-01-17 at 2.19.16 PM.mov…
+
+
+https://github.com/user-attachments/assets/5aa5ada1-ee13-49f5-a190-576161973ae9
+
+
 
 
 
